@@ -1,1 +1,1 @@
-> **<https://tkvpn.github.io/>**
+> **<https://gecko-vpn.com/>**
